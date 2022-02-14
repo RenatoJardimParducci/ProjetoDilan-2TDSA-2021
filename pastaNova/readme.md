@@ -1,2 +1,2 @@
 Pasta nova
-Reedição
+Reedição, agora no PC
